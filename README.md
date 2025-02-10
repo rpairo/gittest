@@ -1,3 +1,3 @@
 - Dani
 - Angel
-- Raul≈
+- Raul
